@@ -17,6 +17,10 @@ That being said, I do not support endogenic systems. If you genuinely believe yo
 I can become defensive about my interests and favourite characters, please don't speak negatively about them in front of me.
 
 I have OCD, BPD, ADHD and autism. I am also the host of a P-DID system. My conditions affect the way I perceive the world and interact with others.
+
+##
+
+<img src="bambino.gif"> <img src="eviltransexual.gif"> <img src="ezgif.com-webp-to-gif-converter.gif"> <img src="ezgif.com-webp-to-gif-converter (1).gif"> <img src="ezgif.com-webp-to-gif-converter (2).gif"> <img src="ieatpeople.gif"> <img src="outlasttrials.gif"> <img src="rockyhorror.gif">
 <!--
 **leatheroccult/leatheroccult** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
